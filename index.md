@@ -1,5 +1,5 @@
 ---
-title: Welcome to My Journey: Motherhood, Faith, and Entrepreneurship
+title: Welcome to My Journey
 ---
 
 Welcome to My Journey: Motherhood, Faith, and Entrepreneurship
