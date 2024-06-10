@@ -24,7 +24,7 @@ On this blog, you can expect a blend of content that touches on all aspects of m
 - **Home Education**: Fun projects and activities to keep your little ones entertained and engaged.
 - **Shopping list**: My insight and research about products and brands. 
 
-##Join the Journey
+## Join the Journey
 I believe that sharing our stories and experiences makes us stronger and more connected. Whether you’re here for parenting hacks, faith-based reflections, or solopreneur tips, I hope you find something that resonates with you. Let’s create a community where we can learn from each other, support one another, and celebrate the amazing journey we’re on.
 
 Thank you for reading my first post! Stay tuned for more updates, and don’t forget to subscribe so you never miss a new post. You can also follow me on instagram @momnana.id for more daily insights and behind-the-scenes glimpses into my life.
