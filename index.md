@@ -32,4 +32,5 @@ Thank you for reading my first post! Stay tuned for more updates, and don’t fo
 Feel free to personalize this introduction with your own details and adjust it to fit your style and voice. Happy blogging!
 
 With love and gratitude,
+
 Ratna Mutia Suci
