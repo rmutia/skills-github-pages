@@ -17,12 +17,12 @@ Motherhood, faith, and entrepreneurship are each profound journeys on their own.
 ## What You’ll Find Here
 On this blog, you can expect a blend of content that touches on all aspects of my life as a mother, a Muslim, and a solopreneur. Here’s a sneak peek at some of the topics I’ll be covering:
 
-**Motherhood**: From daily routines and parenting hacks to heartfelt stories and lessons learned, I’ll share the ups and downs of raising children.
-**Faith**: Reflections on my journey as a Muslim, including spiritual practices, balancing faith with everyday life, and teaching my children about Islam.
-**Solopreneur**: Insights into running a business from home, managing time effectively, and balancing work and family life.
-**Self-Care**: Tips on how to take care of yourself while juggling multiple roles, including spiritual self-care, mental health, and finding moments of peace.
-**Home Education**: Fun projects and activities to keep your little ones entertained and engaged.
-**Shopping list**: My insight and research about products and brands. 
+- **Motherhood**: From daily routines and parenting hacks to heartfelt stories and lessons learned, I’ll share the ups and downs of raising children.
+- **Faith**: Reflections on my journey as a Muslim, including spiritual practices, balancing faith with everyday life, and teaching my children about Islam.
+- **Solopreneur**: Insights into running a business from home, managing time effectively, and balancing work and family life.
+- **Self-Care**: Tips on how to take care of yourself while juggling multiple roles, including spiritual self-care, mental health, and finding moments of peace.
+- **Home Education**: Fun projects and activities to keep your little ones entertained and engaged.
+- **Shopping list**: My insight and research about products and brands. 
 
 ##Join the Journey
 I believe that sharing our stories and experiences makes us stronger and more connected. Whether you’re here for parenting hacks, faith-based reflections, or solopreneur tips, I hope you find something that resonates with you. Let’s create a community where we can learn from each other, support one another, and celebrate the amazing journey we’re on.
